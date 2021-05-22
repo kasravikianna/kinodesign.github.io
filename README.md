@@ -1,1 +1,1 @@
-# Kino Design
+Welcome to Kino Design website
