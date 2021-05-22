@@ -1,1 +1,1 @@
-# kinodesign.github.io
+www.kinodesign.ca
